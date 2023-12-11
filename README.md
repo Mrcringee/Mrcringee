@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mrcringee
 - 👀 I’m interested in не важно
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on стороников прогрессивных мыслей
+- 💞️ I’m looking to collaborate on сторонников прогрессивных мыслей
 - 📫 How to reach me https://id.vk.com/account/#/main
 
 <!---
