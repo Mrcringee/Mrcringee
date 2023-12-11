@@ -2,7 +2,7 @@
 - 👀 I’m interested in не важно
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on сторонников прогрессивных мыслей
-- 📫 How to reach me https://id.vk.com/account/#/main
+- 📫 How to reach me [https://id.vk.com/account/#/main](https://m.vk.com/id835358979)
 
 <!---
 Mrcringee/Mrcringee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
